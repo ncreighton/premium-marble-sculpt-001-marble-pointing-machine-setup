@@ -1,0 +1,2 @@
+# premium-marble-sculpt-001-marble-pointing-machine-setup
+Stop wasting precious carving time recalibrating your pointing machine. This Notion template turns a chaotic setup process into a repeatable, error-proof workflow so you can focus on the stone.  The Marble Pointing Machine Setup Guide eliminates guesswork and forgotten steps by organizing every measurement, calibration log, and checklist inside a s
